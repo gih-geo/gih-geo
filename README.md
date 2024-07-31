@@ -7,7 +7,7 @@ Meu nome é Rainha
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos 
 
 
-![] (https://media1.tenor.com/m/bRkshBYUa7kAAAAC/culpa-mia-gabriel-guevara.gif)
+![](https://media1.tenor.com/m/bRkshBYUa7kAAAAC/culpa-mia-gabriel-guevara.gif)
 
 
 
